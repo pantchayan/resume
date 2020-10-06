@@ -1,4 +1,4 @@
-# Cover letter/ Resume 
+# Resume 
 Last updated 22nd August 2020.
 
 #### Download Link (to access links):
