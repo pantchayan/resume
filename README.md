@@ -1,5 +1,5 @@
 # Resume 
-Last updated 22nd August 2020.
+Last updated 29th September 2020.
 
 #### Download Link (to access links):
 [Chayan Pant Resume.pdf](https://github.com/pantchayan/resume/files/5331098/Chayan.Pant.Resume.pdf)
